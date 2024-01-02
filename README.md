@@ -1,5 +1,6 @@
 ##  About me:
-
+I am a young and energetic aspiring game programmer. I am about to finish my udergrad degree in games and multimedia
+at politécnico de Leiria, with two published games. Preferentially I enjoy working as a gameplay programmer.
 
 # 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/lucas-pereira-8541182a5/) 
