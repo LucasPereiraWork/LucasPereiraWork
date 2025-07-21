@@ -11,6 +11,10 @@ at politécnico de Leiria, with two published games. Preferentially I enjoy work
 # 🌐 Posted Games:
 [![Expired Meat](https://img.itch.zone/aW1nLzEzMjgyNzEwLnBuZw==/original/yk7E17.png)](https://4unrealstudio.itch.io/expired-meat)
 [![Lights Out](https://img.itch.zone/aW1nLzk0NjU4MzYuanBn/315x250%23c/40ZTl%2F.jpg)](https://lightsoutgame.itch.io/lights-out)
+[![National Farm](https://img.itch.zone/aW1hZ2UvMjgwOTkyOC8xNjkxMjExMi5wbmc=/original/rXYpD8.png)](https://4unrealstudio.itch.io/national-farm)
+
+# Intership:
+[![Red Dagger Studio](https://www.facebook.com/photo/?fbid=201616356344311&set=a.102366789602602)](https://www.facebook.com/reddaggerstudio)
 
 
 # 📊 GitHub Stats:
