@@ -14,7 +14,7 @@ at politécnico de Leiria, with two published games. Preferentially I enjoy work
 [![National Farm](https://img.itch.zone/aW1hZ2UvMjgwOTkyOC8xNjkxMjExMi5wbmc=/original/rXYpD8.png)](https://4unrealstudio.itch.io/national-farm)
 
 # Intership:
-[![Red Dagger Studio](https://www.facebook.com/photo/?fbid=201616356344311&set=a.102366789602602)](https://www.facebook.com/reddaggerstudio)
+[![Red Dagger Studio](https://scontent.fopo5-1.fna.fbcdn.net/v/t39.30808-6/411456331_201616353010978_2489893087249211314_n.jpg?_nc_cat=102&ccb=1-7&_nc_sid=6ee11a&_nc_ohc=OfbBG7V8Y7kQ7kNvwEVoGLz&_nc_oc=Adk-494TEtN-vdFThIGtddDeOWrchQSsnAVWcg05BKhlDEkeQUHKk3oQZVwbzkZKhKos9AAaXqPBF7C1KxvoOqyt&_nc_zt=23&_nc_ht=scontent.fopo5-1.fna&_nc_gid=CdVVb5hUbQ6irPM0aDbyAQ&oh=00_AfRd7tZ7g9AuWHOkaOpFgKPNr98Op1gYsGJrNGHBCU13vw&oe=68841884)](https://www.facebook.com/reddaggerstudio)
 
 
 # 📊 GitHub Stats:
